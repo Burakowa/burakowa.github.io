@@ -1,4 +1,3 @@
-![IMG_20210804_185312](https://user-images.githubusercontent.com/87815121/128223652-e082024c-fc43-48de-86de-1f4f545ab0a2.jpeg)
 
 Staram się generować jak najmniej odpadów. W 2020 roku wyrzuciłam najmniej jedzenia w swoim życiu, a w 2021 idę na rekord, wyrzucam tylko kompost - jeśli już naprawdę nie ma dla niego zastosowania. Gotuję codziennie. Jeśli na przykład kupię za dużo fasolki szparagowej, to ta fasolka pojawia się w każdym daniu przez kilka dni, ale codziennie w innej odsłonie. Raz w tygodniu robię zakupy, które polegają na uzupełnieniu zawsze potrzebnych produktów. Wiele razy w przeszłości zdarzyło mi się zachwycić jakimś przepisem i kupić coś, co później mi się nie przydało i po kilku tygodniach lądowało w koszu. Teraz jestem już dorosła i rozsądna. Kiedy mam w kuchni "co poniżej", zawsze udaje mi się ugotować coś dobrego. 
 
