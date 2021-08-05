@@ -1,0 +1,61 @@
+![IMG_20210705_131938](https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg)
+
+Wróciłam z mężem z urlopu. Przed urlopem - wiadomo - trzeba wszystko wyjeść, żeby nie zalęgły się robaki i pleśń, więc w lodówce pustka. Nie poszłam do sklepu, 
+bo niedziela, a rano pewnie też bym nie poszła, bo pranie i krzątanie, normalna sprawa. Jeszcze przed rozpakowaniem sfatygowanych ciuchów zamówiłam warzywa na nadchodzący
+tydzień. Rano kurier przywiózł karton z jedzeniem, którego podobno nikt nie chciał wystawić w sklepach itp. Jak stwierdziła kiedyś moja koleżanka Kasia, 
+pierwsze tego typu zamówienie wiąże się z uczuciem zawodu. Okazuje się, że niechciane warzywa - odpadki wcale nie są powykręcane, brzydkie i stare. 
+
+Kupuję moje pudło raz w tygodniu, za każdym razem oddaję kurierowi pusty, złożony karton z zeszłego tygodnia. Najpierw wyjadam najbardziej poobijane warzywka i owoce, 
+i te liściaste, które lada moment mi uwiędną. Tym razem dostałam młode ziemniaczki, ogórki gruntowe, czerwone cebulki, pieczarki, cebulki ze szczypiorem, koperek, rzodkiewki,
+żółtą cukinię, pomidorki, jabłuszka i truskawki, i super rukolę. Rukola "nie z paczki" powinna być pikantna i sztywna. Ucieszyłam się, bo rzeczywiście tak było. 
+
+Jak wspomniałam, miałam te warzywka i mega mało w lodówce i w suchej szafce, a nie chciało mi się wychodzić do sklepu. Poza tym lubię robić z tego, co mam. 
+Rzućcie oczkiem, co zawsze mam w swojej kuchni. Wam też proponuję takie bejsiki, podstawy podstaw, przydaśki. Wybrałam makaron alla soba. Piszę alla, 
+bo w moim zawartość mąki gryczanej wynosi 30 proc. ale jak już jest, to trzeba zjeść. Jeśli macie pod ręką prawilny 100 proc. gryka, to proszę bardzo, 
+pamiętajcie tylko, jak bardzo lubi się skleić. Soba to makaron japoński, do dań, do zup, lubi się z pastą miso i algami, ale przecież teraz w kuchni można wszystko,
+byleby się udało.
+
+Postanowiłam wykorzystać rukolę, bo bałam się, że mi uwiędnie. Jedna z paczkowych cukinii była drobna i bez jędrności, dlatego również wygrała swój bilet na obiad. 
+Do tego jeden z pomidorków (czerwono - zielony, pękaty) był troszkę poobijany, niespodziewanie stał się wice bohaterem dania. Do tego jogurt kokosowy na granicy 
+przydatności i czarny czosnek otrzymany w prezencie od siostry (super pomysł na prezent!). Warzywny smaczek, tego mi było trzeba po wakacjach w Czechach. 
+
+**Na dwie porcje:**
+
+- **makaron „soba”** - dwie porcje
+- **dwa średnie pomidory** - na przykład czerwono zielone, sezonowe
+- **mała żółta cukinia**
+- **jedna cebulka ze szczypiorem**
+- **kilka ząbków czarnego czosnku** - wzięłam 6, można mniej, można więcej
+- **jeden ząbek czosnku**  
+- **pół pęczka rukoli** - najlepiej bioorganic z czyjegoś ogródka, od lokalnego rolnika, musi mieć wyraźny, ostry smak
+- **sos sojowy** do smaku
+- **chilli** do smaku
+- **miód albo syrop daktylowy**
+- **tłuszcz do smażenia**
+- **sól**
+- **pieprz**
+- **cynamon cejloński**
+
+Nie podaję czasu przygotowania. Każdy gotuje w swoim tempie i nie chcę wywierać na nikim presji. Ja robiłam około 30 minut. 
+
+Na mocno rozgrzaną **patelnię** wrzućcie pokrojoną w plasterki żółtą cukinię, bez tłuszczu. Niech puści wodę, karmelizuje się. Należy ją przewracać
+i pilnować żeby się nie spaliła. Po około 3 minutach trzeba zmniejszyć ogień na średni. Jak na początku mieliście na kuchence np. 7, to teraz dajcie na 4 albo 5, 
+zależy od waszego sprzętu, to już wy wiecie najlepiej. Do cukinii trzeba dodać tłuszcz na którym zwykle smażycie - ja wybrałam łyżeczkę oleju kokosowego. 
+
+Potem dodajcie pokrojoną niedbale cebulkę, bez szczypioru. Podsmażcie minutkę. 
+
+Sparzcie dwa pomidory - wystarczy włożyć je do głębokiej miski, zalać wrzątkiem, po 20 sekundach odlać wodę i zdjąć skórkę nożem. Pokrójcie pomidory byle jak, 
+tylko odkrójcie i wyrzućcie zdrewniałe części, żeby było milej. Dodajcie miąższ z sokiem i z pestkami do cukinii i cebulki. Smażcie aż pomidory się rozpadną, 
+zrobi się sosik. 
+
+Czarny czosnek pokrójcie na plasterki albo kosteczkę, jak wam wygodniej, i dodajcie do sosu. 
+
+Proponuję przyprawić: łyżką stołową sosu sojowego, szczyptą albo dwiema chilli (może być proszek, płatki), szczyptą świeżo zmielonego pieprzu, szczyptą lub dwiema cynamonu 
+cejlońskiego. Spróbujcie. Jeśli macie słodki ząbek, a może sos jest za kwaśny albo za słony, dodajcie łyżeczkę miodu albo syropu daktylowego. Przyprawianie to kwestia indywidualna 
+i ja mogę pisać, ile czego dałam, ale każdy musi sam sobie odpowiedzieć na pytanie, czego tu brakuje. 
+
+Jeśli uważacie, że sos jest dość płynny i wam smakuje, możecie tak go zostawić. Ja dodałam jeszcze jogurt kokosowy naturalny bez cukru, który pięknie nadaje się do zabielania sosów i zup. 
+Po pierwsze dlatego że lubię zabielać pomidory, po drugie mój by się przeterminował. Jeśli też tak macie, wlejcie jogurt do lekko gotującego się sosu i dokładnie wymieszajcie. 
+
+Wrzućcie na patelnię ugotowany, ale nie rozgotowany! makaron, wymieszajcie z sosem. Przełóżcie na głęboki talerz lub miskę. Posypcie pokrojoną albo porwaną na mniejsze kawałki rukolą 
+i szczypiorem od cebulki. Danie treściwe, ale zdecydowanie lżejsze niż smażony syr. 
