@@ -1,24 +1,17 @@
 ---
 title: Soba z żółtą cukinią, czarnym czosnkiem i pikantną rukolą
 image: 'https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg'
+tags: [cukinia, pomidor, czarny czosnek, rukola, makaron soba, burakowa]
 ---
 
-![IMG_20210705_131938](https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg)
-
 Wróciłam z mężem z urlopu. Przed urlopem - wiadomo - trzeba wszystko wyjeść, żeby nie zalęgły się robaki i pleśń, więc w lodówce pustka. Nie poszłam do sklepu, 
-bo niedziela, a rano pewnie też bym nie poszła, bo pranie i krzątanie, normalna sprawa. Jeszcze przed rozpakowaniem sfatygowanych ciuchów zamówiłam warzywa na nadchodzący
-tydzień. Rano kurier przywiózł karton z jedzeniem, którego podobno nikt nie chciał wystawić w sklepach itp. Jak stwierdziła kiedyś moja koleżanka Kasia, 
+bo niedziela, a rano pewnie też bym nie poszła, bo pranie i krzątanie, normalna sprawa. Jeszcze przed rozpakowaniem sfatygowanych ciuchów zamówiłam warzywa na nadchodzący tydzień. Rano kurier przywiózł karton z jedzeniem, którego podobno nikt nie chciał wystawić w sklepach itp. Jak stwierdziła kiedyś moja koleżanka Kasia, 
 pierwsze tego typu zamówienie wiąże się z uczuciem zawodu. Okazuje się, że niechciane warzywa - odpadki wcale nie są powykręcane, brzydkie i stare. 
 
-Kupuję moje pudło raz w tygodniu, za każdym razem oddaję kurierowi pusty, złożony karton z zeszłego tygodnia. Najpierw wyjadam najbardziej poobijane warzywka i owoce, 
-i te liściaste, które lada moment mi uwiędną. Tym razem dostałam młode ziemniaczki, ogórki gruntowe, czerwone cebulki, pieczarki, cebulki ze szczypiorem, koperek, rzodkiewki,
-żółtą cukinię, pomidorki, jabłuszka i truskawki, i super rukolę. Rukola "nie z paczki" powinna być pikantna i sztywna. Ucieszyłam się, bo rzeczywiście tak było. 
+Kupuję moje pudło raz w tygodniu, za każdym razem oddaję kurierowi pusty, złożony karton z zeszłego tygodnia. Najpierw wyjadam najbardziej poobijane warzywka i owoce, i te liściaste, które lada moment mi uwiędną. Tym razem dostałam młode ziemniaczki, ogórki gruntowe, czerwone cebulki, pieczarki, cebulki ze szczypiorem, koperek, rzodkiewki, żółtą cukinię, pomidorki, jabłuszka i truskawki, i super rukolę. Rukola "nie z paczki" powinna być pikantna i sztywna. Ucieszyłam się, bo rzeczywiście tak było. 
 
 Jak wspomniałam, miałam te warzywka i mega mało w lodówce i w suchej szafce, a nie chciało mi się wychodzić do sklepu. Poza tym lubię robić z tego, co mam. 
-Rzućcie oczkiem, co zawsze mam w swojej kuchni. Wam też proponuję takie bejsiki, podstawy podstaw, przydaśki. Wybrałam makaron alla soba. Piszę alla, 
-bo w moim zawartość mąki gryczanej wynosi 30 proc. ale jak już jest, to trzeba zjeść. Jeśli macie pod ręką prawilny 100 proc. gryka, to proszę bardzo, 
-pamiętajcie tylko, jak bardzo lubi się skleić. Soba to makaron japoński, do dań, do zup, lubi się z pastą miso i algami, ale przecież teraz w kuchni można wszystko,
-byleby się udało.
+[Rzućcie oczkiem, co zawsze mam w swojej kuchni] ({% post_url 2021-07-20-co zawsze mam w kuchni %}) Wam też proponuję takie bejsiki, podstawy podstaw, przydaśki. Wybrałam makaron alla soba. Piszę alla, bo w moim zawartość mąki gryczanej wynosi 30 proc. ale jak już jest, to trzeba zjeść. Jeśli macie pod ręką prawilny 100 proc. gryka, to proszę bardzo, pamiętajcie tylko, jak bardzo lubi się skleić. Soba to makaron japoński, do dań, do zup, lubi się z pastą miso i algami, ale przecież teraz w kuchni można wszystko,byleby się udało.
 
 Postanowiłam wykorzystać rukolę, bo bałam się, że mi uwiędnie. Jedna z paczkowych cukinii była drobna i bez jędrności, dlatego również wygrała swój bilet na obiad. 
 Do tego jeden z pomidorków (czerwono - zielony, pękaty) był troszkę poobijany, niespodziewanie stał się wice bohaterem dania. Do tego jogurt kokosowy na granicy 
@@ -55,12 +48,8 @@ zrobi się sosik.
 
 Czarny czosnek pokrójcie na plasterki albo kosteczkę, jak wam wygodniej, i dodajcie do sosu. 
 
-Proponuję przyprawić: łyżką stołową sosu sojowego, szczyptą albo dwiema chilli (może być proszek, płatki), szczyptą świeżo zmielonego pieprzu, szczyptą lub dwiema cynamonu 
-cejlońskiego. Spróbujcie. Jeśli macie słodki ząbek, a może sos jest za kwaśny albo za słony, dodajcie łyżeczkę miodu albo syropu daktylowego. Przyprawianie to kwestia indywidualna 
-i ja mogę pisać, ile czego dałam, ale każdy musi sam sobie odpowiedzieć na pytanie, czego tu brakuje. 
+Proponuję przyprawić: łyżką stołową sosu sojowego, szczyptą albo dwiema chilli (może być proszek, płatki), szczyptą świeżo zmielonego pieprzu, szczyptą lub dwiema cynamonu cejlońskiego. Spróbujcie. Jeśli macie słodki ząbek, a może sos jest za kwaśny albo za słony, dodajcie łyżeczkę miodu albo syropu daktylowego. Przyprawianie to kwestia indywidualna i ja mogę pisać, ile czego dałam, ale każdy musi sam sobie odpowiedzieć na pytanie, czego tu brakuje. 
 
-Jeśli uważacie, że sos jest dość płynny i wam smakuje, możecie tak go zostawić. Ja dodałam jeszcze jogurt kokosowy naturalny bez cukru, który pięknie nadaje się do zabielania sosów i zup. 
-Po pierwsze dlatego że lubię zabielać pomidory, po drugie mój by się przeterminował. Jeśli też tak macie, wlejcie jogurt do lekko gotującego się sosu i dokładnie wymieszajcie. 
+Jeśli uważacie, że sos jest dość płynny i wam smakuje, możecie tak go zostawić. Ja dodałam jeszcze jogurt kokosowy naturalny bez cukru, który pięknie nadaje się do zabielania sosów i zup. Po pierwsze dlatego że lubię zabielać pomidory, po drugie mój by się przeterminował. Jeśli też tak macie, wlejcie jogurt do lekko gotującego się sosu i dokładnie wymieszajcie. 
 
-Wrzućcie na patelnię ugotowany, ale nie rozgotowany! makaron, wymieszajcie z sosem. Przełóżcie na głęboki talerz lub miskę. Posypcie pokrojoną albo porwaną na mniejsze kawałki rukolą 
-i szczypiorem od cebulki. Danie treściwe, ale zdecydowanie lżejsze niż smażony syr. 
+Wrzućcie na patelnię ugotowany, ale nie rozgotowany! makaron, wymieszajcie z sosem. Przełóżcie na głęboki talerz lub miskę. Posypcie pokrojoną albo porwaną na mniejsze kawałki rukolą i szczypiorem od cebulki. Danie treściwe, ale zdecydowanie lżejsze niż smażony syr. 
