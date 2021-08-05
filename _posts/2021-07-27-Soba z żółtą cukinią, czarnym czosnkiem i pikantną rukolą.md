@@ -1,3 +1,7 @@
+---
+- image: 'https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg'
+---
+
 ![IMG_20210705_131938](https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg)
 
 Wróciłam z mężem z urlopu. Przed urlopem - wiadomo - trzeba wszystko wyjeść, żeby nie zalęgły się robaki i pleśń, więc w lodówce pustka. Nie poszłam do sklepu, 
