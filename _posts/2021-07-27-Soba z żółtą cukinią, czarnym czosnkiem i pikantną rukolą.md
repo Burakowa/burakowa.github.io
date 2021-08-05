@@ -25,7 +25,7 @@ przydatności i czarny czosnek otrzymany w prezencie od siostry (super pomysł n
 - **dwa średnie pomidory** - na przykład czerwono zielone, sezonowe
 - **mała żółta cukinia**
 - **jedna cebulka ze szczypiorem**
-- **kilka ząbków czarnego czosnku** - wzięłam 6, można mniej, można więcej
+- **kilka ząbków czarnego czosnku** - wzięłam 6, można mniej, więcej
 - **jeden ząbek czosnku**  
 - **pół pęczka rukoli** - najlepiej bioorganic z czyjegoś ogródka, od lokalnego rolnika, musi mieć wyraźny, ostry smak
 - **sos sojowy** do smaku
