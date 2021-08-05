@@ -1,6 +1,6 @@
 ---
-- title: Soba z żółtą cukinią, czarnym czosnkiem i pikantną rukolą
-- image: https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg
+title: Soba z żółtą cukinią, czarnym czosnkiem i pikantną rukolą
+image: 'https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg'
 ---
 
 ![IMG_20210705_131938](https://user-images.githubusercontent.com/87815121/128355179-76fe2432-b775-4d09-8266-f81f821f9b44.jpeg)
