@@ -1,6 +1,6 @@
 ---
 title: Knedliki z brzydkimi truskawkami
-image: '![IMG_20210707_133259](https://user-images.githubusercontent.com/87815121/128731583-ee8cc291-e926-4adf-ac85-7065768acaae.jpeg)'
+image: 'https://user-images.githubusercontent.com/87815121/128731583-ee8cc291-e926-4adf-ac85-7065768acaae.jpeg'
 tags: [knedliki, owoce, twaróg, truskawki, masło, Czechy, kluski]
 ---
 
