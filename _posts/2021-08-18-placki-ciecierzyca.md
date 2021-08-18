@@ -4,7 +4,7 @@ image: https://user-images.githubusercontent.com/87815121/129936633-b6dc77f3-b42
 tags: [mąka, cieciezyca, placki, przyprawy, kuchnia, gotowanie, zapasy, jedzenie, burakowa]
 ---
 To dodatek idealny do różnych sosów na bazie przypraw, które uznawane są w naszym kręgu kulturowym za orientalne. Można sobie ten placek odrywać 
-i wydłubywać z sosu kawałki tofu, można maczać w masali z soczewicy z jabłkiem, można nakłaść tam hummus, pikle. Można z nimi cokolwiek się chce. 
+i wydłubywać z sosu kawałki tofu, można maczać [w masali z soczewicy z jabłkiem]({% post_url 2021-08-17-masala%})  można nakłaść tam hummus, pikle. Można z nimi cokolwiek się chce. 
 Należy jednak mieć na uwadze, że są to naleśniczki wytrawne, z wyczuwalnym aromatem kminu rzymskiego. Czyli dżem raczej nie, no chyba że jakiś figowy, 
 do tego kozi ser, to ok. Najważniejsze, że jedyną trudnością w tym przepisie jest zdobycie mąki z ciecierzycy. Ja kupuję w osiedlowym sklepie. Nie jest 
 to jakiś bardzo duży problem. 
