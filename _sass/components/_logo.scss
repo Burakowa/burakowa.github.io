@@ -4,9 +4,10 @@
 
 .c-logo {
   &__link {
-    font-size: $font-size-base;
+    font: $font-size-base;
     font-weight: $font-weight-bolder;
     transition: $global-transition;
+    color: $color-brand;
 
     @include attention() {
       color: $color-brand;

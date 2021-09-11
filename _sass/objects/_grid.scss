@@ -43,6 +43,7 @@ $grid-gutter: $base-spacing-unit;
 
   &--3-4-s {
     width: percentage(3 / 4);
+    padding: 10px;
   } // 75%;
 
   &--4-4-s {
