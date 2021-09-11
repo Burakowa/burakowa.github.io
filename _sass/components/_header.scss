@@ -6,6 +6,8 @@
   &__inner {
     padding: $base-spacing-unit 0;
     border-bottom: 1px solid $color-border;
+    color: $color-brand;
+    font-size: 150%;
   }
 
   &__icon {
