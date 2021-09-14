@@ -65,5 +65,7 @@ Kalafior może powodować wzdęcia!
 Ludzie o wrażliwych flakach mogą dodać kminek do pesto, dzięki temu unikną wzdęć. Jeśli ktoś nie znosi nawet śladowych ilości kminku w jedzeniu, 
 niech po posiłku zaparzy sobie herbatkę z kopru włoskiego. 
 
+Jeśli nie macie migdałów bez skóry, wrzućcie je na kilkanaście sekund do wrzątku, a skórka odejdzie sama!
+
 Pozostałe pesto można przełożyć do słoika i zalać łyżką oliwy, żeby dłużej było świeże. To dobre smarowidło, dip, jak kto lubi.
 
