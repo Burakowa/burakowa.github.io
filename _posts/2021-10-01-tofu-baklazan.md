@@ -1,22 +1,23 @@
 ---
-title: Fastfood z bakłażanem i tofu prawie jak z Wietnamu
+title: Fast food z bakłażanem i tofu prawie jak z Wietnamu
 image: https://user-images.githubusercontent.com/87815121/135638960-e80f4a53-d86f-467d-8fb1-2818f49d8c44.jpeg
 tags: [tofu, bakłażan, chilli, tapioka, ryż, koperek, pomidory, kuchnia chińska, zero waste, sos sojowy, ocet ryżowy]
 ---
 
-Przede wszystkim zaznaczam, że jestem bardzo wrażliwa, jak ktoś mówi o barach wietnamskich "chińczyki". Ta ignorancja kulturowa i kulinarna zupełnie mnie nie bawi.
-Kuchnia wietnamska jest moją ulubioną na świecie, mam do niej słabość i sentyment - również do tej pol-vietowej. W naszym kraju kojarzona jest z fastfoodem,
-chociaż tradycyjne dania wietnamskie, które są najsłynniejsze, na przykład zupa Phở, są bardzo slow i wymagają uwagi. 
+Przede wszystkim zaznaczam, że jestem bardzo wrażliwa, jak ktoś mówi o barach wietnamskich "chińczyki". Ta ignorancja kulturowa i kulinarna 
+zupełnie mnie nie bawi.
+Kuchnia wietnamska jest moją ulubioną na świecie, mam do niej słabość i sentyment - również do tej pol-vietowej. W naszym kraju kojarzona jest 
+z fast foodem, chociaż tradycyjne dania wietnamskie, które są najsłynniejsze, na przykład zupa Phở, są bardzo slow i wymagają uwagi. 
 
-Kuchnia wietnamska tylko pozornie podobna jest do chińskiej, chociaż w obu kuchniach znajdziemy podobne dania, a w barach wietnamskich dostniemy na przykład 
-kaczkę po pekińsku, która w Chinach jest raczej daniem eleganckim, a nie ulicznym. 
+Kuchnia wietnamska tylko pozornie podobna jest do chińskiej, chociaż w obu kuchniach znajdziemy podobne dania, a w barach wietnamskich dostniemy 
+na przykład kaczkę po pekińsku, która w Chinach jest raczej daniem eleganckim, a nie ulicznym. 
 
 Street food to Wietnam. Chiny wbrew pozorom aż tak nie stoją garkuchniami na chodnikach. 
 
-Wracając do tego, po co tu jesteśmy. Zrobiłam danie pyszne i łatwe, przede wszystkim szybkie. Dlatego nazwałam je fastfoodem. Łączy w sobie kilka dań, które zdarzało 
-mi się jeść w Wietnamie. Wykorzystałam w nim jednak motyw, który znany jest miłośnikom również chińskiej kuchni - skrobiowego glutka, dzięki któremu sos perfekcyjnie okleja składniki.
+Wracając do tego, po co tu jesteśmy. Zrobiłam danie pyszne i łatwe, przede wszystkim szybkie. Dlatego nazwałam je fastfoodem. Łączy w sobie kilka dań, które zdarzało mi się jeść w Wietnamie. Wykorzystałam w nim jednak motyw, który znany jest miłośnikom również chińskiej kuchni - skrobiowego glutka, dzięki któremu sos perfekcyjnie okleja składniki.
 
-Jako posypkę wykorzystałam zamrożony kilka miesięcy temu koperek. W Wietnamie ludzie przepadają za koperkiem, szczególnie w sałatce z rybą. Nie wiem, jak w Chinach?
+Jako posypkę wykorzystałam zamrożony kilka miesięcy temu koperek. W Wietnamie ludzie przepadają za koperkiem, szczególnie w sałatce z rybą. 
+Nie wiem, jak w Chinach?
 Jak ktoś wie, proszę o info.
 
 **Na dwie porcje:**
