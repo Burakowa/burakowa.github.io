@@ -47,8 +47,7 @@ miał neutralny smak. Cebulę, imbir (obrany) i czosnek pokrócie w kostkę i wr
 
 Następnie dodajcie wszystkie przyprawy: pastę curry, chilli, fenkuł, kmin, goździki, cynamon, anyż, liście kaffiru. Dokładnie wszystko wymieszajcie. 
 
-Jeśli używacie tofu, pokrójcie je w większą kostkę i wrzućcie je do gara z przyprawami, cebulą, imbirem i czosnkiem. Wymieszajcie i zostawcie na kilka minut, 
-żeby się trochę przysmażyło. Pilnujcie tylko, żeby całość się nie przypaliła. 
+Jeśli używacie tofu, pokrójcie je w większą kostkę i wrzućcie je do gara z przyprawami, cebulą, imbirem i czosnkiem. Wymieszajcie i zostawcie na kilka minut, żeby się trochę przysmażyło. Pilnujcie tylko, żeby całość się nie przypaliła. 
 
 Dorzućcie pokrojoną w grube plastry marchewkę, wymieszajcie. 
 
@@ -62,8 +61,7 @@ Kiedy zupa się zagotuje, zmniejszcie ogień na mały i wlejcie mleko kokosowe. 
 Posmakujcie. Wlejcie tyle sosu sojowego, żeby było dla was ok słone. U mnie wystarczyły dwie łyżki. Możecie dolać kilka kropli octu ryżowego. Możecie 
 doprawić chilli. Jeśli kolor zupy wyda wam się zbyt bury, możecie dodać łyżkę ketchupu. 
 
-Spażcie pomarańczę wrzątkiem. Kiedy ostygnie dokładnie ją umyjcie i przekrójcie ją na pół. Jedną połówkę pokrójcie na bardzo cienkie plastry. Nie musicie 
-skrajać całej połówki, możecie pokroić tylko połowę połowy, jeśli nie przepadacie za goryczką skórki pomarańczowej. Wrzućcie plastry do zupy. Pozostałą 
-pomarańczę wyciśnijcie dokładnie do gara.
+Sparzcie pomarańczę wrzątkiem. Kiedy ostygnie dokładnie ją umyjcie i przekrójcie ją na pół. Jedną połówkę pokrójcie na bardzo cienkie plastry. 
+Nie musicie skrajać całej połówki, możecie pokroić tylko połowę połowy, jeśli nie przepadacie za goryczką skórki pomarańczowej. Wrzućcie plastry do zupy. Pozostałą pomarańczę wyciśnijcie dokładnie do gara.
 
 Zupę możecie zjeść bez dodatków, można z dowolnym makaronem ryżowym, ryżem, jak uważacie. Koniecznie posypcie dymką i szczypiorem. 
