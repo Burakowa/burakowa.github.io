@@ -6,8 +6,9 @@ tags: [bataty, skrobia ziemniaczana, kluski, pesto, pietruszka, natka pietruszki
 
 Nie każdy obiad jest udany, nie każdy obiad jest pyszny. Mam momenty kreatywności, wtedy codziennie gotuję coś nowego, prawie zawsze udanego.
 Pomysły na obiad przychodzą mi zwykle do głowy pod prysznicem, kiedy planuję kolejne kroki, co i jak i gdzie mam załatwić. Po pierwsze nie chce mi się 
-wychodzić z domu na zakupy. Wtedy przypominam sobie, co zostało w lodówce z zeszłodniowego obiadu, może nawet z kolacji. Potem analizuję zawartość szafek.
-Zwykle staram się mieć na stanie produkty, które zawsze się przydają. Listę moich niezbędników znajdziecie w tym poście. 
+wychodzić z domu na zakupy. Wtedy przypominam sobie, co zostało w lodówce z zeszłodniowego obiadu, może nawet z kolacji. Potem analizuję zawartość szafek. Zwykle staram się mieć na stanie produkty, które zawsze się przydają. 
+
+[Listę moich niezbędników znajdziecie w tym poście.]({% post_url 2021-07-20-zawsze %})
 
 Dzisiaj myjąc swoje ciało również analizowałam, z czego mogę szyć. Bardzo nie chciało mi się wychodzić, bo po tygodniowej przerwie rzuciłam się na jogę
 i, jak to zwykle bywa w moim przypadku, skończyło się na forsowaniu mięśni sprzętami wygrzebanymi z dna szafy, na przykład czymś co nazywane jest 
