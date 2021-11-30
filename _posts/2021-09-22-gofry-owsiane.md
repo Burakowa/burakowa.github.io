@@ -25,8 +25,9 @@ Moja gofrownica ma 1500 W. Uważam, że sprzęt poniżej 1000 W się nie sprawdz
 **Na około 4-6 gofrów:**
 
 - **dwa spore, bardzo dojrzałe banany**
-- **szklanka bezglutenowych płatków owsianych górskich**
+- **pół szklanki bezglutenowych płatków owsianych górskich**
 - **szklanka bezglutenowych płatków owsianych błyskawicznych**
+- **dwie łyżki sezamu**
 - **szczypta soli**
 - **pół łyżki oleju kokosowego**
 
@@ -35,7 +36,7 @@ Obrane ze skóry banany rozgniećcie widelcem albo tłuczkiem do ziemniaków.
 Dodajcie płatki owsiane, sól i olej kokosowy. Możecie też dodać szczyptę cynamonu cejlońskiego albo kardamonu, jeśli chcecie nadać gofrom głębszego smaku.
 
 Całość dokładnie wymieszajcie, aż powstanie gęsta masa. Jeśli intuicja podpowie wam, że masa jest zbyt sucha, możecie dodać trochę mleka roślinnego, 
-na początek pół szklanki. 
+na początek pół szklanki. Jeśli masa wydaje się być mało zwarta, możecie dodać pół szklanki mąki owsianej - można ją łatwo uzyskać mieląc płatki owsiane blenderem.
 
 Masę wyłóżcie na rozgrzaną gofrownicę i smażcie aż gofry będą złote i zwarte, czyli chrupiące. Uwaga, łatwo przedobrzyć i może dojść do lekkiego przypalenia.
 Pod koniec smażenia zaglądajcie do gofrownicy często. U mnie smażenie trwa około 6 - 8 minut. Prawdopodobnie im mniejsza moc, tym dłużej trzeba smażyć. 
