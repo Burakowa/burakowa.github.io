@@ -33,7 +33,7 @@ Moja gofrownica ma 1500 W. Uważam, że sprzęt poniżej 1000 W się nie sprawdz
 
 Obrane ze skóry banany rozgniećcie widelcem albo tłuczkiem do ziemniaków. 
 
-Dodajcie płatki owsiane, sól i olej kokosowy. Możecie też dodać szczyptę cynamonu cejlońskiego albo kardamonu, jeśli chcecie nadać gofrom głębszego smaku.
+Dodajcie płatki owsiane, sezam, sól i olej kokosowy. Możecie też dodać szczyptę cynamonu cejlońskiego albo kardamonu, jeśli chcecie nadać gofrom głębszego smaku.
 
 Całość dokładnie wymieszajcie, aż powstanie gęsta masa. Jeśli intuicja podpowie wam, że masa jest zbyt sucha, możecie dodać trochę mleka roślinnego, 
 na początek pół szklanki. Jeśli masa wydaje się być mało zwarta, możecie dodać pół szklanki mąki owsianej - można ją łatwo uzyskać mieląc płatki owsiane blenderem.
