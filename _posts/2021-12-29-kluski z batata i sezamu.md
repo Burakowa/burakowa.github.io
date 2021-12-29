@@ -1,8 +1,9 @@
 ---
 title: Chrupiące kluski z batata i sezamu z miso i nori
-image:https://user-images.githubusercontent.com/87815121/147676147-6194f7fc-8b56-48c9-bbb9-ac68d71edb34.png
-tags: [batat, bataty, kluski, nori, sezam, miso, pasta miso, soja, szczypior, mąka ziemniaczana]
+image: (https://user-images.githubusercontent.com/87815121/147680279-ff713e1c-7fee-4cf6-9fe2-e6932229661b.png)
+tags: [bataty, kluski, miso, sezam, nori, szczypior]
 ---
+
 
 Wiem, na moim blogasku kluski z dodatkiem skrobii pojawiają się szalenie często. Moja teoria jest taka: czasy są stresujące, a takie kluski to najwidoczniej
 moje "comfort food". 
