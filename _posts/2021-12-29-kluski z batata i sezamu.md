@@ -1,6 +1,6 @@
 ---
 title: Chrupiące kluski z batata i sezamu z miso i nori
-image: (https://user-images.githubusercontent.com/87815121/147680279-ff713e1c-7fee-4cf6-9fe2-e6932229661b.png)
+image: 'https://user-images.githubusercontent.com/87815121/147680279-ff713e1c-7fee-4cf6-9fe2-e6932229661b.png'
 tags: [bataty, kluski, miso, sezam, nori, szczypior]
 ---
 
