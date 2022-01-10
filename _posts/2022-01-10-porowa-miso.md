@@ -1,5 +1,5 @@
 ---
-title: Szybka zupa miso porowa
+title: Szybka zupa porowa z miso
 image: https://user-images.githubusercontent.com/87815121/148807022-2767c722-f1dc-4c43-a524-81917f1a729b.jpeg
 tags: [pasta miso, por, warzywa, szpinak, makaron ryżowy, pasta chilli, sezam, ocet ryżowy, zapasy, tofu, olej sezamowy]
 ---
