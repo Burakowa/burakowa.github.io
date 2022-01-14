@@ -4,19 +4,19 @@ image: https://user-images.githubusercontent.com/87815121/143493467-27a77520-e86
 tags: [buraki, barszcz, kotlety, wigilia, kluski ziemniaczane, pyzy ziemniaczane, wegan, tofu, pyzy wege, przyprawy, zero waste, zapasy]
 ---
 
-To będzie taki muti wpis, który będzie zawierał w sobie 3 przepisy. Po pierwsze - jest to danie z dodatkiem, ale ten dodatek już trochę był omawiany
+To będzie taki multi wpis, który będzie zawierał w sobie 3 przepisy. Po pierwsze - jest to danie z dodatkiem, ale ten dodatek już trochę był omawiany
 na burakowa.net, więc nie zasługuje na osobny post. Poza tym głupio by wyglądał na zdjęciach, taki sam, goły. 
 
 Mowa o pyzach, kluskach, dodatku bezglutenowym, ale węglowodanowym do barszczu. Uwielbiam ciasto z farszem w smaku umami, ale z biegiem lat coraz gorzej czuję 
-się po gotowanej mące pszennej, a coraz lepiej po skrobii ziemniaczanej. 
+się po gotowanej mące pszennej, a coraz lepiej po skrobi ziemniaczanej. 
 
-Średnio wchodzi mi również tradycyjny farsz świąteczny, czyli grzyby i kapusta, bo wzdęcia, a co za dużo kminku to niezdrowo dla ogólego komfortu. 
+Średnio wchodzi mi również tradycyjny farsz świąteczny, czyli grzyby i kapusta, bo wzdęcia, a co za dużo kminku to niezdrowo dla ogólnego komfortu. 
 Uważam jednak, że pod względem smaku jest to najlepsze rozwiązanie. Uważam również, że barszcz z uszkami jest hitem w skali światowej, nasza duma, piękny efekt. 
 Zagraniczni goście powinni być witani takim barszczem zamiast chlebem i solą. Wtedy by byli naprawdę w szoku, bo nigdy czegoś takiego nie jedli, a nie tylko, że no 
 miło, fajnie, bo ktoś dał im powąchać pieczywo. Nie rozumiem też dlaczego turyści uważają, że w Polsce trzeba zjeść żurek. Mam nadzieję, że to się niedługo zmieni, 
 chyba że będą jedli tylko wege żurki. 
 
-Barszcz jest cudem i jest wegański. To dobry przykład na to, że wegańskie danie może być ulubionym daniem mięsożerców. Ja lubię barsz z ziemniakami, z różnymi 
+Barszcz jest cudem i jest wegański. To dobry przykład na to, że wegańskie danie może być ulubionym daniem mięsożerców. Ja lubię barszcz z ziemniakami, z różnymi 
 pierogami - spróbujcie kiedyś z ruskimi, zabielany z makaronem kolanka, pasztecikami z francuskiego, pasztecikami z naleśników w bułce tartej. Od dziecka 
 przeszkadzała mi wersja barszczu imprezowa, niepotrzebnie robiona na wywarze mięsnym i z pasztecikami z drobniutko zmielonym mięsem.
 
@@ -24,7 +24,7 @@ Czyli podsumowując: poniżej dzielę się radą, jak w najmniej upierdliwy i w 
 niestandardowy dodatek, czyli kluski ziemniaczane z farszem z tofu i z cebulki. 
 
 Trzeci przepis wynika z problemu, który generuje barszczyk. Bio odpadki, bardzo dużo ugotowanych buraczków. Nie łudzę się, że ludzie o takich buraczkach myślą 
-ciepło. Takie buraczki mają opinię wygotowanych, niesmacznych po prostu. No i jest świetne rozwiązanie. Dzięki temu, w jaki sposoób ugotujemy barszcz, buraczki
+ciepło. Takie buraczki mają opinię wygotowanych, niesmacznych po prostu. No i jest świetne rozwiązanie. Dzięki temu, w jaki sposób ugotujemy barszcz, buraczki
 będą pyszne do pysznych kotletów, bogatych w aromaty i składniki odżywcze! Niestety nie mam ich zdjęć, bo za późno się zorientowałam i je zamroziłam (8 sztuk). Przedtem zjadłam z mężem około 6 kotletów na obiad i kolację. Są różowe i wyglądają trochę jak krowie placki, ale za to jakie pyszne krowie placki!
 
 **Barszcz:**
@@ -50,18 +50,18 @@ będą pyszne do pysznych kotletów, bogatych w aromaty i składniki odżywcze! 
 - **woda**
 
 **opcjonalnie:**
-**kiszone buraki razem z zalewą - ile uważacie, suszone grzby - garść wcześniej wymoczonych, śliwki wędzone - garść**
+**kiszone buraki razem z zalewą - ile uważacie, suszone grzyby - garść wcześniej wymoczonych, śliwki wędzone - garść**
 
 Buraki obierzcie ze skórki, pokrójcie na plastry i wrzućcie do miski, odstawcie ją na bok.
 
-Do dużego garnka o pojemności około 4 - 5 litrów wrzuććie obrane marchewki, cebule, czosnek, jabłko przekrojone na pół, wszystkie przyprawy i zalejcie je około 3 
+Do dużego garnka o pojemności około 4 - 5 litrów wrzućcie obrane marchewki, cebule, czosnek, jabłko przekrojone na pół, wszystkie przyprawy i zalejcie je około 3 
 litrami wody. 
 
 Jeśli dodajecie grzyby lub/i śliwki, to jest dobry moment, żeby wrzucić je do gara.
 
 Kiedy woda z warzywami i przyprawami się zagotuje, dajcie się jej pogotować jeszcze ok. 5 minut.
 
-Po tym czasie zmniejszcie ogień na mały i wrzućcie pokrojone buraki. Powoli, nie raptownie, żeby nie było kłopotu.
+Po tym czasie zmniejszcie ogień na mały i wrzućcie pokrojone buraki. Powoli, nieraptownie, żeby nie było kłopotu.
 
 Gotujcie na małym ogniu godzinę. Pilnujcie, żeby wywar gotował się delikatnie, za mocne gotowanie spowoduje, że barszcz straci swój kolor i będzie pomarańczowy.
 
@@ -69,7 +69,7 @@ Po godzinie sprawdźcie, czy buraki są trochę miękkie. Jeśli tak, dodajcie k
 
 Dodajcie zakwas buraczany i wymieszajcie. 
 
-Zdjemijcie barszcz z ognia i posmakujcie. Można go dosolić, można dodać czarnego pieprzu, można wcisnąć sok z połowy cytryny, jak jest za mdły. Dosładzanie łyżką 
+Zdejmijcie barszcz z ognia i posmakujcie. Można go dosolić, można dodać czarnego pieprzu, można wcisnąć sok z połowy cytryny, jak jest za mdły. Dosładzanie łyżką 
 miodu to ostateczność, choć skuteczna. 
 
 Po około 2 godzinach barszcz powinien być świetny. 
@@ -131,9 +131,8 @@ Nakładajcie buraczaną masę łyżką, mogą być takie niedbałe kotlety. Na s
 
 Pieczcie około 40 minut. Po pierwszych 20 minutach przerzućcie je na drugą stronę. 
 
-Te kotlety są pyszne, bo buraki wchłonęły dużo smaku przypraw z barszczu i dzięki temu, że barsz gotował się tylko ok. 2 godziny, a nie dwa dni, wciąż są słodkie.
+Te kotlety są pyszne, bo buraki wchłonęły dużo smaku przypraw z barszczu i dzięki temu, że barszcz gotował się tylko ok. 2 godziny, a nie dwa dni, 
+wciąż są słodkie.
 
 Oprócz zjedzenia kotletów w formie kotletowej polecam pokroić je na paski o szerokości ok. 2 cm i podsmażyć na patelni, można je wtedy dodać do bowla albo sałatki.
 
-
-- 
