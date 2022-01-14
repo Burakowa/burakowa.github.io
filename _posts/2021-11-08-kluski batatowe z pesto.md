@@ -18,9 +18,8 @@ Wczorajszy obiad nie był właśnie zbyt pyszny, chociaż mąż jedząc mówił,
 Do tego zrobiłam pesto z natki pietruszki i zapiłam to wszystko filiżanką zakwasu buraczanego mojej teściowej. Zakwas smakował mi najbardziej, ale to nic dziwnego, 
 bo moja teściowa zna się na zakwasie. Warzywa jak warzywa - upieczone zawsze smaczniejsze niż ugotowane. Uznałam, że pietruszkowe pesto nie jest moim ulubionym. 
 
-Dzisiaj zostało mi właśnie to pesto i jeden batat, więc postanowiłam, że kluski batatowe umaziane w tym sosie to najlepszy pomysł, żeby w miarę przyjemnie się go pozbyć. 
-Jakim głupcem byłam! Okazało się, że pietruszkowe pesto jest stworzone dla batatowych klusków!! Mam też apel do moich przyjaciół, którzy w każdej restauracji wybrzydzają 
-na bataty - może byście zrobili te kluski zamiast wszystko ciągle hejtować?
+Dzisiaj zostało mi właśnie to pesto i jeden batat, więc postanowiłam, że kluski batatowe umaziane w tym sosie to najlepszy pomysł, żeby w miarę przyjemnie się 
+go pozbyć. Jakim głupcem byłam! Okazało się, że pietruszkowe pesto jest stworzone dla batatowych klusków!! Mam też apel do moich przyjaciół, którzy w każdej restauracji wybrzydzają na bataty - może byście zrobili te kluski zamiast wszystko ciągle hejtować?
 
 Wersja na pesto dla wegan i niewegan.
 
@@ -31,7 +30,7 @@ Potrzebny blender, mikser itp.
 - **pęczek natki pietruszki**
 - **łyżka stołowa soku z cytryny**
 - **dwie łyżki nasion słonecznika**
-- **pięć filecików anchovis - weganie mogą dać łyżeczkę kaparów**
+- **pięć filecików anchois - weganie mogą dać łyżeczkę kaparów**
 - **dwie łyżki płatków drożdżowych albo twardego dojrzewającego sera**
 - **pół szklanki oliwy z oliwek, może będzie trzeba dodać więcej**
 - **ząbek czosnku**
@@ -40,7 +39,7 @@ Potrzebny blender, mikser itp.
 Natkę pietruszki musicie porządnie umyć, nie musicie jej dokładnie siekać przed blendowaniem. Zależy jaki macie sprzęt. Nawet średniej jakości sprzęt 
 poradzi sobie z natką w całości. 
 
-Do kielicha blendera lub naczynia, w którym będziecie miksować pesto, włóżcie natkę, wyciśnijcie sok z cytryny, dorzućcie nasiona słonecznika, anchovis 
+Do kielicha blendera lub naczynia, w którym będziecie miksować pesto, włóżcie natkę, wyciśnijcie sok z cytryny, dorzućcie nasiona słonecznika, anchois 
 lub kapary, płatki drożdżowe lub ser, czosnek, pieprz, wlejcie oliwę. 
 
 Blendujcie na gładką masę, żeby nie było widocznych włókien i niezmiksowanych pestek itp. 
@@ -63,7 +62,7 @@ pieczcie dalej, aż będzie się go dało rozgnieść widelcem.
 
 Kawałki ostudzonego batata obierzcie ze skóry i rozgniećcie dokładnie widelcem na gładką papkę. 
 
-Rozłóżcie masę babatową równomiernie na talerzu, podzielcie ją na cztery części. W miejsce jednej ćwiartki wsypcie mąkę ziemniaczaną. Chodzi o to, 
+Rozłóżcie masę batatową równomiernie na talerzu, podzielcie ją na cztery części. W miejsce jednej ćwiartki wsypcie mąkę ziemniaczaną. Chodzi o to, 
 żeby mąki ziemniaczanej było tyle co 1/4 masy rozgniecionego batata.
 
 Zagniećcie papkę z batata z mąką ziemniaczaną na gładkie ciasto. Powinna wyjść przyjemna w dotyku kula. Jeśli ciasto wciąż nie będzie plastyczne, 
