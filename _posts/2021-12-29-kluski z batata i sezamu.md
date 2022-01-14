@@ -5,7 +5,7 @@ tags: [bataty, kluski, miso, sezam, nori, szczypior]
 ---
 
 
-Wiem, na moim blogasku kluski z dodatkiem skrobii pojawiają się szalenie często. Moja teoria jest taka: czasy są stresujące, a takie kluski to najwidoczniej
+Wiem, na moim blogasku kluski z dodatkiem skrobi pojawiają się szalenie często. Moja teoria jest taka: czasy są stresujące, a takie kluski to najwidoczniej
 moje "comfort food". 
 
 Druga teoria: kiedy po świętach w lodówce został tylko zwiędły szczypior, batat i dwa jajka, a ma się ochotę na coś bajeranckiego, to wtedy powstają takie danka. 
@@ -27,7 +27,7 @@ Zdjęcie przedstawia wersję wegetariańską, bo jajeczko.
 **Kluski:**
 
 - **jeden spory batat**
-- **około szklanka skrobii ziemniaczanej**
+- **około szklanka skrobi ziemniaczanej**
 - **sól**
 
 **Dodatki:**
@@ -44,7 +44,7 @@ Batata dokładnie umyjcie, obierzcie, pokrójcie na mniejsze kawałki i ugotujci
 Obierki możecie sobie wymieszać z oliwą i upiec na chrupko w temperaturze 220 stopni, czas trzeba mierzyć indywidualnie, na oko, potem możecie posypać je 
 na przykład słodką papryką w proszku.
 
-Ugotowanego batata odcedzcie i rozgniećcie praską do ziemniaków na gładziutką masę. Odstawcie do ostygnięcia.
+Ugotowanego batata odcedźcie i rozgniećcie praską do ziemniaków na gładziutką masę. Odstawcie do ostygnięcia.
 
 Wystudzoną masę z batata wymieszajcie ze skrobią ziemniaczaną. Wsypcie najpierw pół szklanki, zagniećcie. Jeśli masa nie przypomina jeszcze gładkiego
 ciasta, z którego da się uformować kulę, dosypcie resztę skrobi i zagniećcie. Jeśli masa wciąż bardziej przypomina puree, niż ciasto, dosypcie jeszcze trochę. 
